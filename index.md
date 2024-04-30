@@ -1,6 +1,14 @@
 
 # Introduction to "Apocalypsofie: A Critical Analysis"
 
+PRIVATE URL FOR FLORIS SCHAFER.
+PLEASE DO NOT DISTRIBUTE.
+
+Friso Seyferth CS, AwU
+
+
+(Citizen Scientist, Addict with an Uitkering. But in contrast to half the worlds practicing general practitioners, he _does_ know what a P-value is. And that a pseudo-Riemannian manifold is... bubkis) 
+
 In her thought-provoking work, "Apocalypsofie," Dutch philosopher Lisa Doeland offers a profound and timely analysis of the ecological crisis facing humanity. Drawing on a diverse range of thinkers and perspectives, Doeland challenges dominant narratives of progress and growth, critiques the limitations of the circular economy, and explores alternative ways of thinking and acting in the face of environmental devastation.
 
 This comprehensive analysis delves into the philosophical, cultural, and practical dimensions of the ecological crisis, providing a nuanced understanding of its root causes and potential solutions. Doeland argues that the "end of the world as we know it" is not a singular apocalyptic event but an ongoing process of transformation that requires a fundamental shift in our relationship with the environment and with each other.
